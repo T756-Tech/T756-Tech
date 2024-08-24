@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @T756-Tech
 - 👀 I’m interested in technology.
 - 💞️ I’m looking to collaborate on any projects that benefit humanity.
-- 📫 How to reach me this account.
+- 📫 
